@@ -1,0 +1,7 @@
+Executive Summary:
+
+The image of an entity, be it a product or a person or a company, is its intangible asset. For example, the reliability (hence a high resale value) of a used car stems from its positive image as a dependable vehicle among car users. For a political candidate a favorable image is the most critical selling point that helps the candidate win an election. Similarly, the corporate image of an organization is one of its greatest assets and a strong positive image accounts for about half of the market value of a company.
+
+In selecting a company as a viable workplace, the age of Internet provides an unique opportunity to the job seekers (talents) to look for an organization's culture, image, and reputation as critically as the proposed career opportunities and wages. Companies, therefore, should proactively use its (positive) image to attract the best talents from the job market. This article suggests an effective method to use public and private data not only to promote a company as a brand but also to help job seekers obtain a detailed picture of the work environment, i.e., workplace image within the company.
+
+To quantify workplace image, this article recommends Talent Acquisition and Marketing managers to share information about the following aspects of their organization: 1) culture and values, 2) career opportunities, 3) total compensation, 4) work-life balance, 5) recommendation of the employer to friends, 6) workplace inclusiveness, 7) senior leadership roles, and 8) social and environmental responsibilities.
